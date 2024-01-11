@@ -1,1 +1,1 @@
-@akiraxMurata from Satellite team
+@akiraxMurata Satellites
